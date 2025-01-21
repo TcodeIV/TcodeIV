@@ -1,6 +1,6 @@
 - 👋 Hi,> I’m TcodeIV < i think this too
 - 👀 I’m interested in Nothing
-- 🌱 I’m currently learning Backend fundmentals (and how to the TAB button)
+- 🌱 I’m currently learning Backend fundmentals (and how to use the TAB button)
 - 💞️ I’m looking to collaborate on ... Well, I don't
 - 📫 you can find me in any of my contacting info *this is why I've added*
 - 😄 Pronouns: I don't know what they meant by pronouns 
